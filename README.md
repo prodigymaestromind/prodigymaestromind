@@ -28,7 +28,6 @@ I am always eager to collaborate on projects that challenge the status quo and p
 
 - [Instagram](https://www.instagram.com/prodigymaestromind/)
 
-Feel free to make any further adjustments to the content to better reflect your personal style and preferences. Good luck with your career pursuits!
 <!---
 prodigymaestromind/prodigymaestromind is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
